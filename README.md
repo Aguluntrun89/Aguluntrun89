@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Aguluntrun89
+- 👀 I’m interested in games
+- 🌱 I’m currently learning java scripting
+- 📫 How to talk with me:discord Aguluntrun89YT1#8701
